@@ -1,16 +1,27 @@
-### Hi there 👋
+˚ ༘♡ ⋆｡˚ ❀ HAI WORLD!! ^.^ *ੈ✩‧₊˚
 
-<!--
-**maruoffi/maruoffi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*ੈ✩‧₊˚Maru, yuyuko, viney/ vinestaff, hatate, mari (NOT A SYSTEM!)
 
-Here are some ideas to get you started:
+*ੈ✩‧₊˚minor and artist! no commisions yet.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*ੈ✩‧₊˚c+h and int always!
+
+*ੈ✩‧₊˚dont force ur ship on me. ill get agressive
+
+-ˋˏ ༻❁༺ ˎˊ- -ˋˏ ༻❁༺ ˎˊ- PHIGHTING SHIPS -ˋˏ ༻❁༺ ˎˊ- -ˋˏ ༻❁༺ ˎˊ-
+
+COMF ˚ ༘♡ ⋆｡˚ ❀ medstaff : vinespace : ghostiffic : banscythe swocket : valkbox : valkbucket : skateshot : scytheboard : hypertana
+
+JOKE ˚ ༘♡ ⋆｡˚ ❀ Biomic-u!
+
+UNCOMF(DNI) ˚ ༘♡ ⋆｡˚ ❀ medhammer, scythestaff, vinedeeri
+
+༉‧₊˚.﹌﹌﹌﹌﹌﹌ SOCIALS ﹌﹌﹌﹌﹌﹌༉‧₊˚.
+
+༉‧₊˚.discord: maru_offiisnotreal
+
+༉‧₊˚.ponytown location: mostly at phighting zone
+
+༉‧₊˚.rubl0x1: Marusya3 . TEER
+
+༉‧₊˚.t1ktok: @maru_offi
